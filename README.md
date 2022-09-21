@@ -1,1 +1,1 @@
-# exerc-cio-Leonidas
+# exercício-Leonidas
